@@ -46,4 +46,4 @@ Canal & Campaña Breakdown
 
 ---
 
-If you want one like this for your company, you can contact me at: [Servicios de Santino Decuadro | LinkedIn](https://www.linkedin.com/services/page/99447a338370682409/)
+If you want one like this for your company, you can contact me at: [Santino Decuadro's Services | LinkedIn](https://www.linkedin.com/services/page/99447a338370682409/)
